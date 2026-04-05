@@ -1,3 +1,11 @@
+💫 Hi 👋, I'm Dev Aditya Singh
+A passionate Data Analyst || Web3 Enthusiast || learner 
+
+Email Me 👉 ✉️ devaditya.contact@gmail.com For Collaboration/Project or Anything Else. 😊😊
+
+🔭 I’m currently working on: Shaping my professional journey.
+🌱 I’m currently learning: Data Analytics
+💬 Ask me about: Collaboration, Tech Support
 
 ## 🌐 Socials:
 [![email](https://img.shields.io/badge/Email-D14836?logo=gmail&logoColor=white)](mailto:devaditya.contact@gmail.com) 
