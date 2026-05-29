@@ -4,7 +4,7 @@ A passionate Data Analyst || AI&ML || learner
 Email Me 👉 ✉️ divyeshtiwari77@gmail.com For Collaboration/Project or Anything Else. 😊😊
 
 🔭 I’m currently working on: Shaping my professional journey.
-🌱 I’m currently learning: Data Analytics
+🌱 I’m currently learning: AI & ML 
 💬 Ask me about: Collaboration, Tech Support
 
 ## 🌐 Socials:
