@@ -1,5 +1,5 @@
 💫 Hi 👋, I'm Divyesh Tiwari
-A passionate Data Analyst || Web3 Enthusiast || learner 
+A passionate Data Analyst || AI&ML || learner 
 
 Email Me 👉 ✉️ divyeshtiwari77@gmail.com For Collaboration/Project or Anything Else. 😊😊
 
