@@ -1,7 +1,7 @@
-💫 Hi 👋, I'm Dev Aditya Singh
+💫 Hi 👋, I'm Divyesh Tiwari
 A passionate Data Analyst || Web3 Enthusiast || learner 
 
-Email Me 👉 ✉️ devaditya.contact@gmail.com For Collaboration/Project or Anything Else. 😊😊
+Email Me 👉 ✉️ divyeshtiwari77@gmail.com For Collaboration/Project or Anything Else. 😊😊
 
 🔭 I’m currently working on: Shaping my professional journey.
 🌱 I’m currently learning: Data Analytics
